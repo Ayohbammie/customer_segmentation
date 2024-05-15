@@ -89,7 +89,7 @@ We acknowledge the use of publicly available datasets and libraries that made th
 
 ---
 
-For any questions or feedback, please contact [your email](mailto:youremail@example.com).
+For any questions or feedback, please contact [your email](motunrayoafowowe94@gmail.com).
 
 ---
 
